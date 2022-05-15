@@ -1,4 +1,4 @@
-👋 Hi, I’m Nicole Wilson
+👋 Hi, I’m Nicole Wilson  
 👀 I’m interested in aquatic ecosystem management and environmental consultancy 🐳 🐬 🦭
 
 <!---
